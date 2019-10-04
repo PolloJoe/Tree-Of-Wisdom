@@ -1,1 +1,1 @@
-# Tree-Of-Wisdom
+# Tree-of-Wisdom
